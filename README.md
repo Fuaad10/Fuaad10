@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fuaad10
-- 👀 I’m interested in Football, musics, specially EDM.
+- 👀 I'm interested in Football and music, especially EDM.
 - 🌱 I’m currently learning University codings.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, insta- instagram.com/_fuaaaaaad_/, facebook- facebook.com/hassan.xx
